@@ -1,1 +1,0 @@
-VotaRP Launcher 
